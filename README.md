@@ -1,1 +1,0 @@
-# Bito_bunseki
